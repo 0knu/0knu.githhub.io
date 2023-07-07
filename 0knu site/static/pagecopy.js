@@ -1,0 +1,1 @@
+No Content: https://www.ondra907.com/static/pagecopy.js
